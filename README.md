@@ -1,1 +1,1 @@
-https://psihoKid.github.io/rsschool-cv/)https://GITHUB-USERNAME.github.io/rsschool-cv/
+https://psihoKid.github.io/rsschool-cv/
