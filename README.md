@@ -1,2 +1,1 @@
-# rsschool-cv
-hello
+https://psihoKid.github.io/rsschool-cv/
